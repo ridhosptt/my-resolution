@@ -1,0 +1,2 @@
+# my-resolution
+rencana kedepannya
